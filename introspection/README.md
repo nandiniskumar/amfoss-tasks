@@ -1,7 +1,7 @@
                                                                        #INTROSPECTION 
 #Why must we choose you?
 
-From childhood itself I was very fond of the latest technologies ,especially the computers….and now I have got such a beautiful platform where I would be able to showcase my talents….as I learned bio till 12th I always wanted develop my computer skills…and I feel that this this the apt platform where I could learn many things and enhance my knowledge and skills…joining amfoss will also teach me how to be social and will also make me understand the value of teamwork…..
+From childhood itself I was very fond of the latest technologies ,especially the computers….and now I have got such a beautiful platform where I would be able to showcase my talents….as I learned bio till 12th I always wanted develop my computer skills…and I feel that this  the apt platform where I could learn many things and enhance my knowledge and skills…joining amfoss will also teach me how to be social and will also make me understand the value of teamwork…..
 
 #What is your plan for the next 6 months?
 
