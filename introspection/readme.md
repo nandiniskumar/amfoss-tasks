@@ -14,7 +14,7 @@ Getting to know more about the computers and improving my skills….get into som
 
 #How would you contribute back to the club?
 
-I would do my level best for improving my skills and doing the projects and also will make sure to share my knowledge to those who which to learn…
+I would do my level best for improving my skills and doing the projects and also will make sure to share my knowledge to those who wish  to learn…
 
 
 
